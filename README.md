@@ -1,4 +1,4 @@
-![Album Cover](https://raw.githubusercontent.com/CowboyCollective/CowboySongs-01/master/album%20cover.jpg)
+![Album Cover](https://github.com/CowboyCollective/CowboySongs-01/raw/master/Album%20Cover.jpg)
 # [DOWNLOAD HERE](https://cowboycollective.bandcamp.com/album/songs-of-the-cowboy-vol-01)
 
 
