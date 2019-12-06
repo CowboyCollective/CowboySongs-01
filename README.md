@@ -1,5 +1,5 @@
 ![Album Cover](https://github.com/CowboyCollective/CowboySongs-01/raw/master/Album%20Cover.jpg)
-# [DOWNLOAD HERE](https://cowboycollective.bandcamp.com/album/songs-of-the-cowboy-vol-01)
+# [★ BUY ON BANDCAMP ★](https://cowboycollective.bandcamp.com/album/songs-of-the-cowboy-vol-01)
 
 
 # Songs of the Cowboy Vol.01
