@@ -16,4 +16,4 @@ The unaltered recordings will be particularly useful to those musicians out ther
 **3. To help movie makers.**<br>
 Many of these songs would provide great background music for your latest short film. By providing stems with the effects, I hope that movie directors will be able to insert the music into their videos, and edit it to make a nice sounding soundtrack. 
 
-Of course any and all uses for this material are encouraged. Want to throw a cowboy karaoke night? Want to use the sounds in your video game? Want to make new art the world has yet to see? All uses are welcome and encouraged. If you make something cool and new with this material be sure to submit it over at CowboyColective.cc/submit
+Of course any and all uses for this material are encouraged. Want to throw a cowboy karaoke night? Want to use the sounds in your video game? Want to make new art the world has yet to see? All uses are welcome and encouraged. If you make something cool and new with this material be sure to submit it over at [CowboyColective.cc/submit](https://cowboycollective.cc/Submit)
